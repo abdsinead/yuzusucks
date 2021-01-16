@@ -1,0 +1,2 @@
+# yuzusucks
+YUZU SUCKS, RYUJINX IS LIFE
